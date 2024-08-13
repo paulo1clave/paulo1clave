@@ -8,4 +8,4 @@ meu nome é joão paulo C.clave
 
 ### você entrar em contato comigo 📣
 
-joao.clavw@escola.pr.gov.br
+joao.clave@escola.pr.gov.br
